@@ -8,7 +8,7 @@ A passionate Full-Stack Web Developer from India
 
 📫 How to reach me sarveshgupta14@gmail.com
 
-📄 Know about my experiences https://drive.google.com/file/d/12sOwKJs6GiZ6e4WMpMRIxAsUWu1P5t5n/view?usp=sharing
+📄 Know about my experiences https://drive.google.com/file/d/11wvmkqEtTYnvfAp1-qdeUuqB69G8qavS/view
 
 
 <h3 align="left">Connect with me:</h3>
